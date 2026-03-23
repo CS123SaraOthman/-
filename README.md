@@ -1,4 +1,5 @@
-# Healing the Wounds of Mountains (ترميم جروح الجبال) 🌱
+# Healing the Wounds of Mountains
+(ترميم جروح الجبال) 🌱
 
 **Transforming abandoned quarries into sustainable, productive lands by filling them with solid waste, capturing methane for energy, and restoring soil for agriculture and biodiversity.**
 
